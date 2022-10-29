@@ -11,3 +11,5 @@
 ![3-Praga _CHehiya-e1530817997167](https://user-images.githubusercontent.com/106185778/198830602-fe00bd5e-70d5-41cd-ba43-31380a3e4646.jpg)
 ![4-Barselona _Ispaniya-e1530818111821](https://user-images.githubusercontent.com/106185778/198830604-1d39eb5e-22d8-42f2-9bec-7576efffe0b5.jpg)
 ![5-Sankt-Peterburg _Rossiya-e1530818214549](https://user-images.githubusercontent.com/106185778/198830607-d0b36ae2-43a5-4897-a8a9-a2ea1c2ac380.jpg)
+[generator_config.txt](https://github.com/alinavodo/alinavodo.github.io/files/9893684/generator_config.txt)
+
