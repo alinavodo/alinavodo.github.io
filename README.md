@@ -22,3 +22,7 @@ thubusercontent.com/106185778/199201285-a9a1d04b-21f8-43a9-b0e4-66b7aec8e182.gif
 ![cat-bg](https://user-images.githubusercontent.com/106185778/199201623-04cd6e06-46c2-4b1e-aae8-9e1cf4da6fba.gif)
 
 ![gory-tsvety-leto-priroda](https://user-images.githubusercontent.com/106185778/199490145-473b8cb5-4104-4cea-8abd-8226319cbe29.jpg)
+
+
+
+![chess](https://user-images.githubusercontent.com/106185778/201466425-45ddfa04-607f-4d0d-a843-ab94499e23fc.png)
