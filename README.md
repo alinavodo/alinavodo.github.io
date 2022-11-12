@@ -1,6 +1,7 @@
 # alinavodo.github.io![car](https://user-images.githubusercontent.com/106185778/198830466-b0d7c067-8695-485d-980e-c8e68f128175.png)
 ![train](https://user-images.githubusercontent.com/106185778/198830573-3a8dd979-f303-492c-87c8-0d8f1748642f.jpg)
-![palette](https://user-images.githubusercontent.com/106185778/198830755-7b5007b0-5dc3-4734-92a9-0580d78d9a23.gif)
+![palette](https://user-images.githubu![chess](https://user-images.githubusercontent.com/106185778/201466413-61e77cfb-9532-4899-9697-7fbcadfc926e.png)
+sercontent.com/106185778/198830755-7b5007b0-5dc3-4734-92a9-0580d78d9a23.gif)
 ![star](https://user-images.githubusercontent.com/106185778/198830769-5b1580e2-c1ac-4d50-8ee8-016e4d7a971e.gif)
 ![cat](https://user-images.githubusercontent.com/106185778/198830587-12537be8-3c15-448e-ac84-ab3789a6aba4.jpg)
 ![dog](https://user-images.githubusercontent.com/106185778/198830588-b6d00bd1-f0cb-412e-92a4-2eb463130768.jpg)
