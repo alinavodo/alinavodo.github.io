@@ -1,6 +1,12 @@
 
 ![football — копия](https://user-images.githubusercontent.com/106185778/201911780-7881375f-bf42-4365-8048-72c0373b1204.png)
 ![color](https://user-images.githubusercontent.com/106185778/202423910-6f295d8c-5cc2-4437-95c4-a82ff29d8bd6.gif)
+![9-1643010565](https://user-images.githubusercontent.com/106185778/202445171-21c81314-8f68-4022-ab0d-e64395c60c13.gif)
+![989 970](https://user-images.githubusercontent.com/106185778/202445182-59c269d8-4716-46d2-9e4d-df43a279482e.png)
+![11520713_plant-emoji-smiley-daisy-hd-png-download](https://user-images.githubusercontent.com/106185778/202445187-36548db9-36c7-4f84-8137-03f8ab6dd745.png)
+![1614560367_99-p-ikonki-na-belom-fone-109 (1)](https://user-images.githubusercontent.com/106185778/202445189-0d3378f7-9c9e-47fd-aa33-6ac8e2b5c387.png)
+![Education,_Studying,_University,_Alumni_-_icon](https://user-images.githubusercontent.com/106185778/202445194-8bb86d77-8a8f-4dc6-bb8e-3563698a4bcf.png)
+![png-clipart-balloon-computer-icons-birthday-party-favor-white-balloon-child-wedding](https://user-images.githubusercontent.com/106185778/202445196-b1d751c4-28b1-431b-a29c-a654e91711e8.png)
 
 
 ![ball](https://user-images.githubusercontent.com/106185778/202173280-fc3edd3c-ba57-4381-b55a-5847b2a55594.png)
