@@ -8,6 +8,8 @@
 ![Education,_Studying,_University,_Alumni_-_icon](https://user-images.githubusercontent.com/106185778/202445194-8bb86d77-8a8f-4dc6-bb8e-3563698a4bcf.png)
 ![png-clipart-balloon-computer-icons-birthday-party-favor-white-balloon-child-wedding](https://user-images.githubusercontent.com/106185778/202445196-b1d751c4-28b1-431b-a29c-a654e91711e8.png)
 
+![html5-bg](https://user-images.githubusercontent.com/106185778/202693938-7670ae50-5f6c-4abc-8f9c-6e5800ed4a84.png)
+![html5-digit](https://user-images.githubusercontent.com/106185778/202693943-d912112c-c654-44a5-98ab-3715322f6fe7.png)
 
 ![ball](https://user-images.githubusercontent.com/106185778/202173280-fc3edd3c-ba57-4381-b55a-5847b2a55594.png)
 ![background](https://user-images.githubusercontent.com/106185778/202400873-c5229e00-8349-4676-8796-359c8d229af6.png)
