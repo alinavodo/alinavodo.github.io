@@ -1,6 +1,7 @@
 
 ![football — копия](https://user-images.githubusercontent.com/106185778/201911780-7881375f-bf42-4365-8048-72c0373b1204.png)![biohazard](https://user-images.githubusercontent.com/106185778/202849438-59ce32c0-0a90-4123-ab03-228850b37a7c.png)
 ![man-and-woman](https://user-images.githubusercontent.com/106185778/202849443-0689a930-2eec-4569-bbd6-955796384dc5.png)
+![no-smoking](https://user-images.githubusercontent.com/106185778/202849470-92359b2c-2819-406b-815a-5bfb9d5ada3a.png)
 
 ![color](htt![no-![yin-yang](https://user-images.githubusercontent.com/106185778/202849446-cda1dbae-8207-4e57-a342-26af351cdeee.png)<img width="21" alt="to-top" src="https://user-images.githubusercontent.com/106185778/202849448-2c9387d9-5aa1-4948-b26a-197e0481b307.png">
 
