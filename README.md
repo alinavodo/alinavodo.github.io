@@ -1,3 +1,8 @@
+![белый квадрат](https://user-images.githubusercontent.com/106185778/203151872-ae282e22-2119-4f5e-a2e5-3fc1e068a472.png)
+
+
+![оранжевый квадрат](https://user-images.githubusercontent.com/106185778/203151882-bbdb5cd4-4261-45fc-a7b4-76d7c326a006.png)
+
 
 ![football — копия](https://user-images.githubusercontent.com/106185778/201911780-7881375f-bf42-4365-8048-72c0373b1204.png)![biohazard](https://user-images.githubusercontent.com/106185778/202849438-59ce32c0-0a90-4123-ab03-228850b37a7c.png)![slider-img-01](https://user-images.githubusercontent.com/106185778/203110614-0d251adc-dce2-4da0-ac4b-32a7f41b62c4.jpg)
 ![prev-next-sprite](https://user-images.githubusercontent.com/106185778/203110623-bf4d7595-f605-4084-b4d0-9fa5fbfb11b1.png)
