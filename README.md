@@ -1,5 +1,6 @@
 ![белый квадрат](https://user-images.githubusercontent.com/106185778/203151872-ae282e22-2119-4f5e-a2e5-3fc1e068a472.png)
 
+![загружено](https://user-images.githubusercontent.com/106185778/204044047-e437803d-9c3f-428f-b5d3-5d18ebc14567.png)
 
 ![оранжевый квадрат](https://user-images.githubusercontent.com/106185778/203151882-bbdb5cd4-4261-45fc-a7b4-76d7c326a006.png)
 
