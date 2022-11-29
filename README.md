@@ -3,6 +3,7 @@
 ![загружено](https://user-images.githubusercontent.com/106185778/204049154-4f9b1c39-6155-4262-9865-c2edddabaf6d.png)
 
 ![загружено](https://user-images.githubusercontent.com/106185778/204044047-e437803d-9c3f-428f-b5d3-5d18ebc14567.png)
+![20182605162258](https://user-images.githubusercontent.com/106185778/204493269-8c2fb12c-edff-49c9-ac48-181082994035.jpg)
 
 ![оранжевый квадрат](https://user-images.githubusercontent.com/106185778/203151882-bbdb5cd4-4261-45fc-a7b4-76d7c326a006.png)
 
