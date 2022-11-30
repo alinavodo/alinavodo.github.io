@@ -1,4 +1,9 @@
-![color2](https://user-images.githubusercontent.com/106185778/204628230-8b1825b0-c935-4ad5-8f69-f7b7b7783ec0.gif)
+![color2](https://user-![avki-ru-0001-animals-50x50](https://user-images.githubusercontent.com/106185778/204796074-119f9556-05d4-485f-bea8-66359cc8c256.gif)
+![avki-ru-0013-animals-50x50](https://user-images.githubusercontent.com/106185778/204796078-21410dc7-f041-4789-aea9-aefcb9029e2a.gif)
+![avki-ru-0032-animals-50x50](https://user-images.githubusercontent.com/106185778/204796082-6eaf5407-5e91-4fe3-93f3-52279c3cb28b.gif)
+![avki-ru-0051-animals-50x50](https://user-images.githubusercontent.com/106185778/204796087-e2f604e9-a430-4878-9db6-03c35528bc8b.gif)
+![avki-ru-0080-animals-50x50](https://user-images.githubusercontent.com/106185778/204796091-a21b83aa-cec4-455f-9bb6-acb028c6c1a7.gif)
+images.githubusercontent.com/106185778/204628230-8b1825b0-c935-4ad5-8f69-f7b7b7783ec0.gif)
 
 ![background](https://user-images.githubusercontent.com/106185778/204631252-40114e23-d52d-4337-8fb6-06bc652dee21.png)
 
