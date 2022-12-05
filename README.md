@@ -1,6 +1,7 @@
 ![avki-ru-0001-animals-50x50](https://user-images.githubusercontent.com/106185778/204797382-b3e0beab-34cd-49f2-ab6b-174833c8f0d4.gif)
 
 ![avki-ru-0040-animals-50x50](https://user-images.githubusercontent.com/106185778/204797392-a09a0ccd-418b-416b-afd7-fa7a8d95189d.gif)
+![fcaeaed206171cbeca6e8653a794-1458705](https://user-images.githubusercontent.com/106185778/205636683-43a8e8f7-8ece-45c4-a28d-2627510fbdac.jpg)
 
 
 
