@@ -1,3 +1,4 @@
+![m_png-transparent-contract-computer-icons-desktop-revocation-of-license-miscellaneous-angle-text-thumbnail](https://user-images.githubusercontent.com/106185778/206281353-31ff77f0-5315-4fe3-b7bf-7ee234497a3e.png)
 
 ![m_png-transparent-computer-icons-user-login-gender-miscellaneous-desktop-wallpaper-account-thumbnail](https://user-images.githubusercontent.com/106185778/206281252-dcc60d24-7d89-4a3c-9819-2c3014ac514d.png)
 
