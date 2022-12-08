@@ -2,6 +2,7 @@
 ![m_63633](https://user-images.githubusercontent.com/106185778/206545769-1284f353-651a-432a-9c6c-f3398c93a6fa.png)
 
 ![m_png-transparent-computer-icons-user-login-gender-miscellaneous-desktop-wallpaper-account-thumbnail](https://user-images.githubusercontent.com/106185778/206281252-dcc60d24-7d89-4a3c-9819-2c3014ac514d.png)
+![1645397388_24-phonoteka-org-p-fon-bumaga-karton-26](https://user-images.githubusercontent.com/106185778/206560148-14fce51d-85d0-430e-b5cf-ec2122912330.jpg)
 
 
 ![m_png-transparent-computer-icons-user-login-gender-miscellaneous-desktop-wallpaper-account-thumbnail (1)](https://user-images.githubusercontent.com/106185778/206274133-3b2df2b2-df45-44a8-828e-062c1d0c91a4.png)
