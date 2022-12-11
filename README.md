@@ -2,6 +2,7 @@
 ![m_63633](https://user-images.githubusercontent.com/106185778/206545769-1284f353-651a-432a-9c6c-f3398c93a6fa.png)
 ![228_Y2hyX2Jvci0wMQ](https://user-images.githubusercontent.com/106185778/206921601-add38e25-1122-4113-b60b-21d655fa1d37.jpg)
 ![015051_1383778251](https://user-images.githubusercontent.com/106185778/206921884-3f7f6c16-7219-44fb-aab5-b909b5df2c8f.png)
+![ukrasheniia-fon-uzor-novyi-god-rozhdestvo-christmas-backgr-1](https://user-images.githubusercontent.com/106185778/206922393-c5fceeef-1d0b-4a1a-87e7-da94ac90a83a.jpg)
 
 ![m_png-transparent-computer-icons-user-login-gender-miscellaneous-desktop-wallpaper-account-thumbnail](https://user-images.githubusercontent.com/106185778/206281252-dcc60d24-7d89-4a3c-9819-2c3014ac514d.png)
 ![1645397388_24-phonoteka-org-p-fon-bumaga-karton-26](https://user-images.githubusercontent.com/106185778/206560148-14fce51d-85d0-430e-b5cf-ec2122912330.jpg)
