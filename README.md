@@ -5,6 +5,7 @@
 ![JBnJItf](https://user-images.githubusercontent.com/106185778/208757462-2424b51c-8384-4380-955c-c8af90c8be6f.png)
 
 ![pngimg com - ping_pong_PNG10364](https://user-images.githubusercontent.com/106185778/228955933-29fdb1b9-0bd3-4ef2-82d8-f28f6b0e0517.png)
+![loading_icon_149916](https://user-images.githubusercontent.com/106185778/233781048-7b15770d-7479-4236-ac80-c86c591cac91.svg)
 
 
 ![m_png-transparent-contract-computer-icons-desktop-revocation-of-license-miscellaneous-angle-text-thumbnail](https://user-images.githubusercontent.com/106185778/206281353-31ff77f0-5315-4fe3-b7bf-7ee234497a3e.png)
